@@ -61,3 +61,8 @@ As technology continues to advance, community development can leverage the power
 
 ## Prototype
 https://youtu.be/_smjiDgEG3Y
+   
+![bf19f177-c150-4e39-8cb6-cd8c266fb657](https://user-images.githubusercontent.com/128261285/232056927-1d172cca-ddcd-4ea6-9e10-10a1e5e091fe.jpg)
+![59a6df81-12f0-4446-b236-3dbee2928f22](https://user-images.githubusercontent.com/128261285/232057130-91f4b60b-25e6-42c9-b2b1-54ce293cfb81.jpg)
+![4d288bc1-a728-4393-9e31-8aebc52c50d2](https://user-images.githubusercontent.com/128261285/232057019-040c71cd-5249-43ee-853b-0cac9e5a8bdf.jpg)
+![e9e0dd1b-fe2b-41bb-b999-eb9f040356b1](https://user-images.githubusercontent.com/128261285/232057085-f928fb3f-a37f-409a-9d9e-72ddde183995.jpg)
